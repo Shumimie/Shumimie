@@ -2,7 +2,7 @@
 - Estoy interesado en la programacion de python
 - Estoy aprendiendo Python
 - Me gustaria colaborar con otros creadores y aprender mas
-- Pueden escribirme por discord: @Shumimie
+- Contacto por IG o DISCORD
 - Genero: Hombre
 - Datito: nose
 
